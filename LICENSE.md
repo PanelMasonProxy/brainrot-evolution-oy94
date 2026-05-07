@@ -1,4 +1,4 @@
-
+new Scripts for brainrot evolution offers the most advanced brainrot evolution Script, with auto-collect and auto-farm. Perfect for dominating any
 
 
 
